@@ -9,8 +9,8 @@ Atelier Leyla’s mission is to create timeless garments that are both ethically
 The name Rüya means dream in Turkish and this is my dream to create a brand that won’t be detrimental to the environment.
 
 ## LookBook
-Çare - Remedy: sustainable skincare line
-Rüya - Dream: sleepwear/lingerie
+- Çare | Remedy : sustainable skincare line
+- Rüya | Dream : sleepwear/lingerie
 
 ## Contact Us
 atelierleyla@gmail.com
