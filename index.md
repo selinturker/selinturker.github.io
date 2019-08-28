@@ -1,7 +1,5 @@
 # Atelier Leyla
 
-> My definition of sustainability
-
 ## About Us
 As far back as I can remember I wanted to be a fashion designer; having my own atelier creating beautiful garments. In 2005 I first started learning about global warming and have since been more aware of the issue that we face. So when I became more serious in starting a brand I knew it had to be both sustainable and ethical.
 
